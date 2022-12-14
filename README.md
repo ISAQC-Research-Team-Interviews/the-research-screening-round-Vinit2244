@@ -1,4 +1,4 @@
-# Score: 8.5/10
+# Score: 8/10
 
 ## Remarks
  - Very creative illustrations 
